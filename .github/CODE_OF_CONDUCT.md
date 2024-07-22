@@ -1,4 +1,4 @@
-# Contributor Covenant Code of Conduct
+# Contributor Covenant Code of Conducte MsNikki church 
 
 ## Our Pledge
 
